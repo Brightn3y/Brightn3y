@@ -1,1 +1,6 @@
-<img width="490" height="80" alt="image" src="https://github.com/user-attachments/assets/8cde55a0-5a2d-44a0-b609-f327bf14b62d" />
+<p align="center"> 
+<img width="414" height="602" alt="image" src="https://github.com/user-attachments/assets/ff76052d-a53a-4cd8-b919-132c379a6d6c" />
+<p align="center">
+made by marki! ily/p
+<p align="center">
+  My brightney sona!!
