@@ -4,9 +4,7 @@
 ᴺᵃʳˡᵉⁿ / ᴴᵉ ᵀʰᵉʸ
   <p align="center">
 'ᴮᵃᵇʸ ʰⁱᵗ ᵐᵉ ᵒⁿᵉ ᵐᵒʳᵉ ᵗⁱᵐᵉ'
-<p align="right">
-<ahref="https://https://mizinotes.straw.page/">ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ</a> <p align="left">
-<ahref="https://owneroflibrarydw.atabook.org/">ᴹʸ ᵃᵗᵃ ᵇᵒᵒᵏ</ahref<a>
+
 
 
 <p align="right">
